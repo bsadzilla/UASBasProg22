@@ -4,6 +4,6 @@
 #### Kelas : TI.22.A.2
 ## DOKUMENTASI
 ### PDF
-#### [KLIK DISINI](https://drive.google.com/file/d/1QE1wtsp8du0a599hHrkU4NCscPUKe-AD/view?usp=drivesdk)
+#### [KLIK DISINI](https://drive.google.com/file/d/1QMV5xfv2fFramaRFjRjzABnk2U9xZWT3/view?usp=drivesdk)
 ### YOUTUBE
 #### [KLIK DISINI]()
